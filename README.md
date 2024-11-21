@@ -11,7 +11,7 @@
 
 - 📫 Cómo contactarme *fernandoangelhernandez62@gmail.com*
 
-- ⚡ Dato curioso *Cuando estoy trabajando soy serio, pero fuera del trabajo me divierto y le gusta bromear mucho ..*
+- ⚡ Dato curioso *Cuando estoy trabajando soy serio, pero fuera del trabajo me divierto y me gusta bromear mucho ..*
 
 <h3 align="left">Conecta conmigo:</h3>
 <p align="left">
